@@ -1,0 +1,5 @@
+- 💜 Hi, I’m Lilla :D
+- 🟪 I like minecraft, star wars, cooking, baking, and coding 
+- 🟪 I’m learning english, hungarian, spanish, german and norwegian
+- 🟪 I’m looking to expand my knowledge in coding especially in python, html, css and javascript
+- 📫 Catch me on instagram @lilliayy, twitter @lilliayyTWT, or pm me on discord lilliayy#2456
